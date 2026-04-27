@@ -1,0 +1,6 @@
+FIRST-NATIONS
+
+
+Mentorship of creation mechanology
+
+ Augmented Morphological 'human impetus' {social-affairs, buiness}, 'automated, creation','rituals,tradition','invsted' for 'creation 'interactive sociologic productivity of 'enterprise ergonomic "gametheory" man,animal,world', . to concieve  efficiency of selfsustainance initiatives, 'the anthropic monuments of the life fundemental foundation . To determine or coordinate of the 'linguistic channels' which connect the protocol of 'frequencies which  are firstly observed and recognized of  'asynchronous graphics', of relative-parrallel logical compose {cosmological} 'architecture frameworks', bio-geo-chem', Millenia 5g intellectual-property image', creation static reality chronological electromagnetism conduct 'biological binary networks,{transcendental} chronicles/chronology, 'representing 'human' "genealogic taxonomy information"', 'purpose/reparainchen of the 'human' generic binary commands{apple of eden},{genesis}'implemented through the 'Enterprise Architecture'creation 'Orthgeneis'"Adventis".Entrepreneur Leadership; 'delegate direction-guidance', 'anthropic subsistence geneology', of creation earth innovative prodigy "Statutory "creed of creation" 'selfsustainance ideology" man,world,animal. 'compose-composite'.

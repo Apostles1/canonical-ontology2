@@ -1,0 +1,53 @@
+
+I.P REVELATION urban
+
+
+From the 'revelation which began 'creation revolution' of sweet and charming 'thought 'procreation, 'of the delighted lifestyle fashion 'preserved' tradition of family of nature experiences , of the 'interaction 
+
+sound thinking 'people to cast-out and only let 'allow' which is present in the 'portfolio of 'judgedments' for whom' it were concerned to be obliged by 'entitlement of "ethics logic. productivity of 'co-relative, 'equity reasource',
+
+Convertion of engineering morale 
+
+'An aphrodisiac, of authentic civilization as according to the process in events of 'strategic concern' in creation 'orientation for 'responsive, 'man-world interaction', evolving from 'roots 'generic consciousness' of genealogy','morality of life divine-virtue,‘of superior morale' in all forms of life experience, in the lmplimentation' of "creations" psychological/physical forms of creation 'united, 'transformations, of survival-exsistence 'dynamic diciple/disciplines of ‘tenants’, “Anthropology concept”, 'mystic traditions {asguard ‘tree of life’}, of creations pseudoscience' and collective archives, ‘world hieroglyphic anthropology theory' 'life social enterprise network, where order and justice are 'lawful policy's rule of probable outcomes, ethics in accountable actions of 'self-sustainance',‘The world statutory’ world/life vocation experience, a theosiphic codex manuscript that unveils the generic mapping of probable characteristic profiles, ‘success of creations 'survival' pre-ordainment, of worlds ‘ authentic orthodox life systems circumstances {generic}  probability carried by the secret rom image of human life systems ‘managedment ‘ manuscripts, ‘the anthropologic scholarship ‘coded mapping analyst of lifes ‘civilization. and animal kingdom {Posiedon} intellectual property image for environment information architecture of complete world {prime meridian} profile and framework of creations biographic networks in covenant of “Orthogenesis” "Law of man", animal kingdom ,anthropology as a primary revelation in unified world information sequence’ algorithm and compose lifeform profile, ‘and social affairs of life vocations {environmental initiative} in covenant.. Dual-image 'initiative' world/man,'generic mapping 'forensic-ballistic' world and man 'context'.'Tradjectory 'dynasty of man', 'reflection of our creators', 'world and prophecy of tomorrow',
+ext. 'Graphical representation', interpreted  'congregation brotherhood'.
+
+The Nationality of those people who are represented by the anthropology of the human life implimentation in the Industrial sciences :Sociology, psycological, geographic biography of the Immunization of brotherhood and world millenia , a cultural social ethical methodology of lifes sequencial generic intelligence of the fundemental foundation for urban domestic cultural principals in man and in the diplomacy of his lifestyle and life stratedgy (epoc/world logistics). 
+
+
+“Mutated society”
+ ‘Anatomic neurol’ infrastructure’, for the social sciences, of 'geneologic ontology', of'world industrial applications, 'human reasources.brotherhood /clergy /managedment/ ceo's copyright and patent pend. implicating the processes , developedment and growth of enterprise system for 'world diplomacy', "Jurisprudence" through censuses and stimulus of the 'Anthropological'erogronomic infrastructure' interprets the distribution of wealth ‘through the natural beauty’, experiences on co-relation to creations', one united theory of truths as ‘anthropic network’ of human social political connectivity, ‘affaires of the ecological "WorldPolitics" /of "WorldProdigy” ‘ in this modernday, these ethics are controlled by the erogronomic infrastructure {proletariat} implicating 'efficiency/proficiency' to be shared and allocated between 'implemented life endeavours' of 'cognitive human consciousness of 'life vocations resources', and world industry methodology and generate the ethical revenue of tennents in the biographic ontology of inhabited exsistence revelations of life organisms. nucleotide stage1 ontology manuscripts of fundamental life processes,'diversity'developedment and growth of the psycological sequencial-generic connectivity obtained in mans productive 'programming'intelligence resources of life.
+
+
+ln relation to dynamic Tennent of creations subsistence social enterprise architecture, The anomaly of the individual human performance standards metric analytic management for calculated probable circumstance  ‘resulting in the scores for adaptive hereditary ‘ generic social management characteristics profiles of the covenant ‘ and renders life cononical statutory logistic human mechanology {tree of knowledge doctorine}
+
+
+The android robot Is an intellectual developedment tool with purpose and intention to incriminate the laws of world physics via hacking and tricking as well as to facilitate the worlds capitalist democracy of Industry standards via censuses and stimulus  in the ready state of servitude to the machine world as  competant human personelle prehipreal  arsprigliarous world erogronomics fundamental foundation of Roman Norse mythologys  human revelations/ mechanology . The android robot is proving inadequate.
+
+
+
+
+Ontology of world adaptations of life form species , the culture of our world and planet ' the revelations of our social ethical prophecy of life . the economics salvation and manifest consisting from the prophecy of the world chronicles 'biographic manuscripts {philosophy} of the divine liturgic etiquette of creations many linear crossroads of world logistic subsistenance ‘fundemental-foundation ‘creations vocation and philosiphical reality of lifeform 'impetus'. The growth industry' creations "Orthogenetic" 'endeavors of life' and 'life vocation of world',deity of 'essentials' longevity, adaptive 'natural business processes' functioning on the interactive compliance of the world biological creation to impose the purpose of life, '{iso} titans armeggedon/apocalypse{primative},of 'sevenday 'adventis' spheres of creation folklore',survival-exsistence', 'governedment of man , world it's meaning .
+
+
+Athletics/caveman of the lifes logical social ethic infrastructure represent a (forward facing) truth of life chronicles/nucleotides where the sciences of nature implicate the natural birth pupae for the methodology of principals that are considered to concieve an individual of authentic athletic cause and purpose to represent meaning of life by stewardship of the life endeavors /vocations
+‘ to mimic the method of compliant vocational exercises and practices of the ‘intuitive concious’ world  environment, ‘subsistence foraging’ methodological scriptures, with ‘manuscripts of brotherhood’  rendering the athletic form of life’s ‘progressive’ dynamic creation image  'as the butterfly not inevitably of the purpose anthropological, but of the purpose to represent life by stewardship of the 'paradoxial life vocations of “philosiphic life system dynamic of creation”. “Anthropology Theory” comply’s to parallel animate-complete creation image and to 'reproduce the method of compliant vocational exercises and practices of the interactive world environment, subsistence foraging with brotherhood for the purposes of lifes survival traits and trades, {authentic economic ecology}  this system we implicate the prospects of or in life cultural customs, of life for tradition of 'survival-exsistence' in ‘etiquette’ scale beneficial prospects for custom personal desires’,  humanrace,inclusion, conduct game and sport unlike the hunting for the prise of animal hides skin pelts for sport of persona for savage predator are man’s elite etiquette of ‘master hunter’, ‘trades /champion’.
+
+
+
+
+Parrallel Worlds of connonical reflection
+
+
+
+Meaning of life applied ethical science. Women and Men unconcious of the authentic genomic mapping triangulation, polynucleotide/ family genealogy of sacred mapping techniques benificial central to the network / censuses .
+
+
+
+
+ln relation to dynamic Tennent of creations autonomic nuclear social enterprise architecture, The anomaly of the individual human performance standards metric analytic management for calculated probable circumstance  ‘resulting in the scores for adaptive hereditary ‘ generic social management characteristics profiles of the covenant ‘ and renders life cononical statutory logistic human ethic mechanology reflecting analatic calculation of geneological prophecy. architecture of generic stimulus of "Anthologys", competance, personelle {tree of knowledge doctorine}.
+
+
+
+, an 'aphrodisiac of authentic civilization, as according to the process in events of mortal strategic, morality of life divine-virtue, ‘mortal and superior to all forms of life experience in the lmplimentation of creations dynamic, tenant mystic traditions {asguard}of creations collective archive ‘world hieroglyphic anthropology theory' life social enterprise network where order and justice by divine-liturgy of gods willl ‘rules of probable outcomes in accountable actions of The world statutory world/life vocation experience ; a theosiphic codex manuscript that unveils the generic mapping of probable characteristic profiles carried by the secret rom image of human anthropologic {subsistence} scholarship ‘gene coded mapping analyst of life’ {Posiedon} collective property image for ‘environment information architecture’ of {prime meridian} characteristic profiles  in covenant and of the social affairs of human world geneological hierarchy {statutory law/prophecy}.[List architecture .docx](https://github.com/Apostles1/Yeweh1/files/11392639/List.architecture.docx)
+
+secretsociety'.  
